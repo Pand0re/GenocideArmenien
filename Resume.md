@@ -1,5 +1,7 @@
 # Génocide Arménien
 ======
+
 ## Qu'est-ce que le génocide Arménien ?
 ------
-Le génocide arménien s'est déroul
+
+Le génocide arménien s'est déroulé
